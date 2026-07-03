@@ -17,6 +17,7 @@ Name's Muhammad Bello Mas'ud, I'm an Information Technology student passionate a
 - Digital Marketing
 - Open Source
 - Tech Innovation
+- Music and entreprenuership'
 
 📫 **Reach me**
 - LinkedIn: mohammed bello masud
